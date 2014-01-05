@@ -1,0 +1,1 @@
+SamCoin (SAM) 
